@@ -1,8 +1,7 @@
 # Reflection on Visit to NALI 2023
 
 ![NALI](https://github.com/amierazulaikha/ASSIGNMENT-1/assets/148413070/15186cf8-a502-460b-b95f-9726589aaf78)
-a/ASSIGNMENT-1/assets/148413070/66a4dd56-de10-4e5f-af77-94485b813a53)
-)
+
 ## What I Have Gained 🌟
 
 Participating in the NALI 2023 exhibition was a transformative experience as I immersed myself in the forefront of educational innovation. Throughout the event, I had the opportunity to delve into groundbreaking teaching methodologies and the latest advancements in educational technology. The speakers at each booth not only shared valuable insights but also presented compelling ideas that showcased the immense potential of technology in shaping the future of education. The exhibition not only broadened my understanding of innovative practices but also ignited my enthusiasm for incorporating these advancements into educational settings for enhanced learning experiences.
