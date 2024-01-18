@@ -1,6 +1,7 @@
 # Reflection on Visit to NALI 2023
 
-![NALI](![NALI](https://github.com/amierazulaikha/ASSIGNMENT-1/assets/148413070/66a4dd56-de10-4e5f-af77-94485b813a53)
+![NALI](https://github.com/amierazulaikha/ASSIGNMENT-1/assets/148413070/15186cf8-a502-460b-b95f-9726589aaf78)
+a/ASSIGNMENT-1/assets/148413070/66a4dd56-de10-4e5f-af77-94485b813a53)
 )
 ## What I Have Gained 🌟
 
